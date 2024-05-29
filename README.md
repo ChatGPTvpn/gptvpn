@@ -48,7 +48,7 @@ V2ray 翻墙机场，IPLC/IEPL 专线机场
 SSRDOG 是一家运营始于2022年的翻墙机场，采用V2ray安全协议，线路有 IEPL 和 IPLC 专线，对 Netflix、Disney+ 流媒体解锁支持度也很好。SSRDOG 机场有定制的一键翻墙VPN客户端，支持安卓、Mac 和 Windows 。iOS 用户推荐使用 Clash for iOS - Stash 代理软件。SSRDOG 机场注册可免费试用，除了常规包月套餐外，也有不限时长的按量付费流量包套餐，套餐年付均有优惠。
 
 
-### 3：FlyingBird 飞鸟机场（推荐指数：四颗星）
+### 4：FlyingBird 飞鸟机场（推荐指数：四颗星）
 
 ![1](https://musescore.org/sites/musescore.org/files/styles/width_360/public/2024-05/11_4.png?itok=H9_6a-ZQ)  [进入官网：点击注册，免费试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
