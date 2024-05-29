@@ -1,4 +1,4 @@
-## ChatGPT科学上网翻墙梯子加速器机场推荐，ChatGPT-4o免费使用：[高速稳定，点击注册，免费试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
+## ChatGPT科学上网翻墙梯子加速器机场推荐，ChatGPT-4o免费使用：[点击注册，免费试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 因为本人有长期的翻墙需求，需要翻墙上外网查看一些代码，需要借助使用ChatGPT来办公，所以每天都使用翻墙软件来用GPT写代码。在常年使用翻墙VPN软件过程中，从一开始使用免费的翻墙VPN软件、浏览器翻墙科学上网插件。
 
