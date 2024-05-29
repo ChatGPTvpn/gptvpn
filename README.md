@@ -80,4 +80,4 @@ FlyingBird 飞鸟机场是一家新晋 Shadowsocks 翻墙服务商，采用国�
 市面上大部分翻墙机场网络服务商都提供了在线客服和工单服务，来解决用户的疑难杂症，但是普通的翻墙机场主都是个人或是小团队运营，在售后处理方面都是比较缓慢的。所以大家在购买一款翻墙机场时，最好观察下这个翻墙机场的售后服务是否及时，这样在很多时候，碰到敏感时期或是疑难杂症时，有在线客服帮您处理翻墙的技术问题。
 
 
- [inline:11.png]    [DOVE加速器：点击注册，免费试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
+![1](https://musescore.org/sites/musescore.org/files/styles/width_360/public/2024-05/11_4.png?itok=H9_6a-ZQ)   [DOVE加速器：点击注册，免费试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
